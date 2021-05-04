@@ -1,0 +1,2 @@
+# Ajariku.id
+Website Ajariku
